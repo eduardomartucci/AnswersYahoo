@@ -1,1 +1,1 @@
-# System kind of answers.yahoo.com
+# Kind of system answers.yahoo.com
